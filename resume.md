@@ -4,7 +4,7 @@
 
 **www.linkedin.com/in/aryabaviskar** 
 
-**arya22k.github.io**
+**https://github.com/arya22k**
 
 ## Education
 
